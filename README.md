@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 > ## About Me
-> *Keep seeking for something to develop and make the world better.*
+> *Constantly seeking new ideas to develop and make the world a better place.*
 
 > ## Tech Stack & Skill Set
 > 
